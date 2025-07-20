@@ -1,5 +1,3 @@
-# 💫 About Me:
-I m cool
 
 
 ## 🌐 Socials:
